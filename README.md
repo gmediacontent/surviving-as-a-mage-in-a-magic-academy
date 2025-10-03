@@ -1,1 +1,2 @@
-# surviving-as-a-mage-in-a-magic-academy
+# Surviving as a Mage in a Magic Academy
+Notre héros a passé toute sa vie à étudier, si bien qu'une fois diplômé, il se jure de ne jamais remettre les pieds dans une école. Seulement un accident mortel survient et il ressuscite dans la peau d'Ilan Wardanas, enfant issu d'une lignée de nobles puissants. Croyant d'abord en sa bonne étoile, Ilan ne tarde pas déchanter : il va devoir se débrouiller seul pour prospérer. Le meilleur moyen, il le sait, implique de devenir sorcier... et pour cela le passage par l'école magique est obligé !
